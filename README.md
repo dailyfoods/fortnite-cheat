@@ -1,6 +1,6 @@
 <p align="center">
   <a href="https://dar.vin/quantum">
-    <img src="https://i.resm.im/Cv3u9ci.png" alt="fortnite" width="300">
+    <img src="https://i.resm.im/Cv3u9ci.png" alt="fortnite" width="400">
   </a>
 </p>
 
