@@ -31,4 +31,4 @@ Every computer that downloads the loader gets 1 day of free access to the Fortni
 - Toggleable FOV circle
 - Customizable crosshair
 
-Get the latest Fortnite Free Cheat for 2024! Unlock features with undetected hacks and dominate the game. Safe, easy, and always up to date. Download now for free!
+Get the latest Fortnite Free Cheat for 2024! Unlock features with undetected hacks and dominate the game. Safe, easy, and always up to date. Download now for free.
